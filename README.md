@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Madson0110
-- 👀 I’m interested in animes, games, programação 
+- 👀 I’m interested in animes, cartoons, séries, games, programação 
 - 🌱 I’m currently learning estudos e gamers
 - 💞️ I’m looking to collaborate on vendas e marketing 
 - 📫 How to reach me estudioso e esforçado
